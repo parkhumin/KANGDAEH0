@@ -1,6 +1,5 @@
 ![](https://files.catbox.moe/7dfxbx.gif)
-    haii sign my ata plz,, paws at you..
-    don't copy my ponies or I will crash out on you
+ haii sign my ata plz,, paws at you..
  ≻───────── ⋆✩⋆ ──────────≺
  
 I go any names you'd like to call me by ! I don't mind any pronouns as I am Genderfluid, more info on rentry and pronouns page ^o^
