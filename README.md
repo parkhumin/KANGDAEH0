@@ -8,7 +8,7 @@ I go by Dae-ho or any other names you like to call me by ! I don't mind any pron
 
  I am a fictkin and otherkin , I do not mind doubles interacting.
 
- feel free to be my frend !! I barely got any.. but read my rentry byi (before you interact)
+ feel free to be my frend !! I barely got any.. but read my rentry byi (before you interact) I am very nice if you get to know me ^_^
  
  ≻───────── ⋆✩⋆ ──────────≺
 
