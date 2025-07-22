@@ -2,7 +2,7 @@
     haii sign my ata plz,, paws at you
  ≻───────── ⋆✩⋆ ──────────≺
  
-I go by Dae-ho or any other names you like to call me by ! I don't mind any pronouns as I am Genderfluid, more info on rentry and pronouns page ^o^
+I go any names you'd like to call me by ! I don't mind any pronouns as I am Genderfluid, more info on rentry and pronouns page ^o^
 
  𝑪+𝑯 𝒊𝒔 𝒂𝒑𝒑𝒓𝒆𝒄𝒊𝒂𝒕𝒆𝒅 𝒂𝒍𝒍 𝒕𝒉𝒆 𝒕𝒊𝒎𝒆 :3 and I accept all friend requests as well.
 
