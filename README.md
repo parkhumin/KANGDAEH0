@@ -8,7 +8,7 @@ I go any names you'd like to call me by ! I don't mind any pronouns as I am Gend
 
  I am a fictkin and otherkin , I do not mind doubles interacting.
 
- feel free to be my frend !! I barely got any.. but read my rentry byi (before you interact) I am very nice if you get to know me ^_^
+ feel free to be my frend !! I barely got any.. but plz read my rentry byi (before you interact) first!! I am a nice if you get to know me tho.. ^_^
  
 don't copy my ponies plz.. or I will crash out on you... inspo is fine, just.. don't take my entire pony.
  
